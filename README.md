@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @aconitvolchiy
-- 👀 I’m interested in econ
-- 🌱 I’m currently learning math
+- 👀 I’m interested in econ, finance, math
 - 📫 How to reach me tg @aconitvolchiy
-- 😄 Pronouns: cat/dog
 - ⚡ Fun fact: piskawobr
 
 <!---
